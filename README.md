@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am  BCA graduate <br>i am youtuber<br>
+MCA PURSUING <br>i am youtuber<br>
 
 
 ## 🌐 Socials:
